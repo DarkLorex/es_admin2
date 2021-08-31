@@ -13,3 +13,9 @@ I hope you like what I did.
 
 YOU NEED ESX_SPECTATE TO MAKE SPECTATE WORK.  
 If you want u can contact me on Discord: @DarkLorex#2409
+
+--
+
+PHOTO OF REDESIGN:
+https://cdn.discordapp.com/attachments/718555733633007648/882133095791362088/20210831065632_1.jpg
+https://cdn.discordapp.com/attachments/718555733633007648/882133087075594250/20210831065639_1.jpg
